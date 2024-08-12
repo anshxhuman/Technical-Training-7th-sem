@@ -1,0 +1,1 @@
+# Technical-Training-7th-sem
